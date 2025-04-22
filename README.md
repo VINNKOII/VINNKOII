@@ -108,6 +108,9 @@ ${\textsf{\color{PaleVioletRed} ⭐️Other Shit⭐️ }}$
 <br>
 <BR>
 <a href="https://users.smartgb.com/g/g.php?a=s&i=g19-01970-f1#write">guestbook</a>
+<br>
+<BR>
+<a href="https://www.youtube.com/@Magg0TZD3AD">Youtube</a>
 
 ${\textsf{\color{hotpink}Do not DM me if you're a minor, if I find out I am talking to a minor I will block you }}$
 <br>
