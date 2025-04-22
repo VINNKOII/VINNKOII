@@ -1,3 +1,14 @@
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+
+
+
+
+
+
 <h2 align="center"> 
 
  ⭐️ About :D ⭐️
@@ -12,7 +23,6 @@ ${\textsf{\color{hotpink} Obsessed with the color pink (specifically}}$ ${\texts
 ${\textsf{\color{Hotpink} Proshipper, and Darkselfshipper :3 (Its fiction chill) }}$
 </div>
 
-<h2 align="center"> 
 ${\textsf{\color{PaleVioletRed} ⭐️Namez⭐️ }}$ 
 
 </h2>
@@ -75,3 +85,43 @@ ${\textsf{\color{PaleVioletRed} ⭐️Ships⭐️ }}$
 <br>
 
 ${\textsf{\color{ pink} I have a lot of ships... }}$
+
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+
+
+${\textsf{\color{PaleVioletRed} ⭐️Other Shit⭐️ }}$ 
+
+<a href="https://skullcruncher.straw.page">Strawpage</a>
+<br>
+<Br>
+<a href="www.tumblr.com/blog/skullcrunch3r">Tumblr</a>
+<Br>
+<BR>
+<a href="pin.it/32dCx60em">Xenogenders</a>
+<BR>
+<BR>
+<a href="https://pronouns.cc/@cozm1c_starz">Pronouns</a>
+<br>
+<BR>
+<a href="https://users.smartgb.com/g/g.php?a=s&i=g19-01970-f1#write">guestbook</a>
+
+${\textsf{\color{hotpink}Do not DM me if you're a minor, if I find out I am talking to a minor I will block you }}$
+<br>
+<br>
+${\textsf{\color{hotpink}Sending me death threats is not "fine", I already want to kill myself enough }}$
+<br>
+<BR>
+${\textsf{\color{hotpink}Idk thats pretty much it- }}$
+
+<br>
+<BR>
+<BR>
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
+<img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
