@@ -63,8 +63,13 @@ Proshipper, and Darkselfshipper :3 (Its fiction chill)
 - ${\textsf{\color{Pink}Cosmo x Sprout (dandys world)}}$
 - ${\textsf{\color{Pink} Rodger x Glisten (dandys world)}}$
 - ${\textsf{\color{Pink} Finn x Shrimpo (dandys world)}}$
-- ${\textsf{\color{Pink} }}$
-- ${\textsf{\color{Pink}Spooky Month}}$
-- ${\textsf{\color{Pink}Mouthwashing}}$
-- ${\textsf{\color{Pink}Dandys World}}$
-- ${\textsf{\color{Pink}Gravity Falls}}$
+- ${\textsf{\color{Pink} Astro x Dandy (dandys world)}}$
+- ${\textsf{\color{Pink} Glisten x Boxten (dandys world)}}$
+- ${\textsf{\color{Pink}Bob Velseb x Me (spooky month)}}$
+- ${\textsf{\color{Pink}Jimmy x me (mouthwashing)}}$
+- ${\textsf{\color{Pink} Curly x me (mouthwashing)}}$
+- ${\textsf{\color{Pink} Astro x me (Dandys world)}}$
+
+
+
+<p> I have a lot of ships...</p>
