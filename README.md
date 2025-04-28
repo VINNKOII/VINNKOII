@@ -172,7 +172,7 @@ ${\textsf{\color{PaleVioletRed} ⭐️Other Ships⭐️ }}$
  <p align="center" width="100%">
  ${\textsf{\color{Pink} William Afton x Micheal Afton (Fnaf) }}$
 <BR>
- ${\textsf{\color{hotpink} B.V. Afton x Micheal Afton (Fnaf) }}$
+ ${\textsf{\color{hotpink} B.V. Afton x Micheal Afton (Fnaf, B.V. stands for 'Bite Victim' btw) }}$
 <BR>
  ${\textsf{\color{Pink} Garret x Steve (The Minecraft Movie) }}$
 <BR>
