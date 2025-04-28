@@ -65,7 +65,7 @@ ${\textsf{\color{PaleVioletRed} ⭐️ Pronouns ⭐️ }}$
  ${\textsf{\color{Pink}He/Him}}$
 <BR>
  ${\textsf{\color{hotpink}They/Them}}$ 
-<Br>
+<bR>
  ${\textsf{\color{Pink}It/Its}}$
 <BR>
 ${\textsf{\color{hotpink}Pup/Pups}}$
