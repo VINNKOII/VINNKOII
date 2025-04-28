@@ -15,71 +15,152 @@
 </h2>
 
 <div align="center">
- 
-${\textsf{\color{hotpink} Transmasc gay bean whos gonna be 20 next February :3 }}$
+
+ ${\textsf{\color{hotpink} Transmasc gay bean whos gonna be 20 next February :3 }}$
 <br>
 ${\textsf{\color{hotpink} Obsessed with the color pink (specifically}}$ ${\textsf{\color{pink}light pink }}$ ${\textsf{\color{hotpink})}}$
 <br>
 ${\textsf{\color{Hotpink} Proshipper, and Darkselfshipper :3 (Its fiction chill) }}$
 </div>
 
+<h2 align="center"> 
 ${\textsf{\color{PaleVioletRed} ⭐️Namez⭐️ }}$ 
 
 </h2>
 
-
-- ${\textsf{\color{pink}Vinn}}$ 
-- ${\textsf{\color{hotpink}Vixen}}$
-- ${\textsf{\color{pink}Vyler}}$
-- ${\textsf{\color{hotpink}Bones}}$
-- ${\textsf{\color{pink}Death}}$
-- ${\textsf{\color{hotpink}Moth}}$
-- ${\textsf{\color{pink}Maggot}}$
+<p align="center" width="100%">
+ ${\textsf{\color{pink}Vinn}}$ 
+<br>
+ ${\textsf{\color{hotpink}Vixen}}$
+ <BR>
+ ${\textsf{\color{pink}Vyler}}$
+ <BR>
+ ${\textsf{\color{hotpink}Bones}}$
+<BR>
+ ${\textsf{\color{pink}Death}}$
+ <BR>
+ ${\textsf{\color{hotpink}Moth}}$
+<BR>
+ ${\textsf{\color{pink}Maggot}}$<BR>
 
 
 
 <h2 align="center"> 
 ${\textsf{\color{PaleVioletRed} ⭐️ Pronouns ⭐️ }}$
 </h2>
-
-- ${\textsf{\color{Pink}He/Him}}$
-- ${\textsf{\color{hotpink}They/Them}}$
-- ${\textsf{\color{Pink}It/Its}}$
-- ${\textsf{\color{hotpink}Pup/Pups}}$
-- ${\textsf{\color{Pink}Ze/Zir}}$
-- ${\textsf{\color{hotpink}Xe/Xem}}$
-- ${\textsf{\color{Pink}Hy/Hymn}}$
-- ${\textsf{\color{hotpink}H☆/H☆m/}}$
-- ${\textsf{\color{Pink}H3/H1m}}$
+<p align="center" width="100%">
+ ${\textsf{\color{Pink}He/Him}}$
+<BR>
+ ${\textsf{\color{hotpink}They/Them}}$ 
+<Br>
+ ${\textsf{\color{Pink}It/Its}}$
+<BR>
+${\textsf{\color{hotpink}Pup/Pups}}$
+<BR>
+ ${\textsf{\color{Pink}Ze/Zir}}$
+ <BR>
+ ${\textsf{\color{hotpink}Xe/Xem}}$
+ <BR>
+ ${\textsf{\color{Pink}Hy/Hymn}}$
+<BR>
+ ${\textsf{\color{hotpink}H☆/H☆m/}}$
+<BR>
+ ${\textsf{\color{Pink}H3/H1m}}$
 
 <h2 align="center"> 
 ${\textsf{\color{PaleVioletRed} ⭐️Fandoms⭐️ }}$
 
 </h2>
+<p align="center" width="100%">
+ ${\textsf{\color{Pink}Spooky Month}}$
+<BR>
+${\textsf{\color{hotpink}Mouthwashing}}$
+<BR>
+ ${\textsf{\color{Pink}Dandys World}}$
+<BR>
+ ${\textsf{\color{HOTPINK}GravityFalls}}$
+<BR>
 
-- ${\textsf{\color{Pink}Spooky Month}}$
-- ${\textsf{\color{hotpink}Mouthwashing}}$
-- ${\textsf{\color{Pink}Dandys World}}$
-- ${\textsf{\color{hotpink}Gravity Falls}}$
 
 <h2 align="center"> 
 ${\textsf{\color{PaleVioletRed} ⭐️Ships⭐️ }}$
 
 </h2>
+<h3 align="center"> 
+${\textsf{\color{PaleVioletRed} ⭐️Mouthwashing⭐️ }}$
 
-- ${\textsf{\color{hotpink}Kevin x Radford (SpookyMonth) }}$
-- ${\textsf{\color{Pink} Ross x Robert (SpookyMonth)}}$
-- ${\textsf{\color{hotpink} Jimmy x Curly (mouthwashing)}}$
-- ${\textsf{\color{pink} Swansea x Daisuke (mouthwashing)}}$
-- ${\textsf{\color{hotpink}Cosmo x Sprout (dandys world)}}$
+</h3>
+<p align="center" width="100%">
+ ${\textsf{\color{hotpink} Jimmy x Curly}}$
+<br>
+${\textsf{\color{pink} Swansea x Daisuke}}$
+<BR>
+ ${\textsf{\color{hotpink}Jimmy x me}}$
+<BR>
+ ${\textsf{\color{Pink} Curly x me}}$
+
+<h3 align="center"> 
+${\textsf{\color{PaleVioletRed} ⭐️SpookyMonth⭐️ }}$
+
+</h3>
+
+ <p align="center" width="100%">
+ ${\textsf{\color{hotpink}Kevin x Radford }}$
+<BR>
+ ${\textsf{\color{Pink} Ross x Robert}}$
+<BR>
+ ${\textsf{\color{hotpink} Pump x Skid}}$
+<BR>
+   ${\textsf{\color{pink} Jack x John}}$
+<BR>
+ ${\textsf{\color{hotpink} Lila x Jaune}}$
+<BR>
+ ${\textsf{\color{pink} Robert x Radford (and yes i headcannon them as siblings) }}$
+<BR>
+ ${\textsf{\color{hotPink} Ross x Me }}$
+<BR>
+ ${\textsf{\color{pink} Kevin x Me }}$
+<BR>
+ ${\textsf{\color{hotpink} Radford x Me }}$
+<BR>
+ ${\textsf{\color{Pink} Kevin x Me }}$
+<BR>
+ ${\textsf{\color{hotPink} Bob Velseb x Me }}$
+<BR>
+
+<h3 align="center"> 
+${\textsf{\color{PaleVioletRed} ⭐️SpookyMonth⭐️ }}$
+
+</h3>
+ <p align="center" width="100%">
+ ${\textsf{\color{Pink} Cosmo x Sprout }}$
+<BR>
+ ${\textsf{\color{hotPink} Rodger x Glisten }}$
+<BR>
+ ${\textsf{\color{Pink} Finn x Shrimpo }}$
+<BR>
+ ${\textsf{\color{hotPink} Shrimpo x Goob }}$
+<BR>
+ ${\textsf{\color{Pink} Dandy x Astro }}$
+<BR>
+ ${\textsf{\color{hotPink} Glisten x Boxten }}$
+<BR>
+ ${\textsf{\color{Pink} Dandy x Me }}$
+<BR>
+ ${\textsf{\color{hotPink} Sprout x Me }}$
+<BR>
+ ${\textsf{\color{Pink} Astro x Me }}$
+<BR>
+
+
+
+
 - ${\textsf{\color{Pink} Rodger x Glisten (dandys world)}}$
 - ${\textsf{\color{hotpink} Finn x Shrimpo (dandys world)}}$
 - ${\textsf{\color{Pink} Astro x Dandy (dandys world)}}$
 - ${\textsf{\color{hotpink} Glisten x Boxten (dandys world)}}$
-- ${\textsf{\color{Pink}Bob Velseb x Me (spooky month)}}$
-- ${\textsf{\color{hotpink}Jimmy x me (mouthwashing)}}$
-- ${\textsf{\color{Pink} Curly x me (mouthwashing)}}$
 - ${\textsf{\color{hotpink} Astro x me (Dandys world)}}$
+
 
 
 <br>
@@ -93,7 +174,9 @@ ${\textsf{\color{ pink} I have a lot of ships... }}$
 <img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1"><img width="10%" src="https://github.com/user-attachments/assets/b193c46b-616e-4c1f-883b-2a96f2a1f9b1">
 
 
-${\textsf{\color{PaleVioletRed} ⭐️Other Shit⭐️ }}$ 
+<h2 align="center"> 
+${\textsf{\color{PaleVioletRed} ⭐️ Other Shit ⭐️ }}$
+</h2>
 
 <a href="https://skullcruncher.straw.page">Strawpage</a>
 <br>
