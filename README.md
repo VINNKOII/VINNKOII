@@ -22,6 +22,19 @@ ${\textsf{\color{hotpink} Obsessed with the color pink (specifically}}$ ${\texts
 <br>
 ${\textsf{\color{Hotpink} Proshipper, and Darkselfshipper :3 (Its fiction chill) }}$
 </div>
+<p align="center" width="100%">
+<a href="https://skullcruncher.straw.page">Strawpage</a> 
+//
+<a href="www.tumblr.com/blog/skullcrunch3r">Tumblr</a>
+//
+<a href="pin.it/32dCx60em">Xenogenders</a>
+//
+<a href="https://pronouns.cc/@cozm1c_starz">Pronouns</a>
+//
+<a href="https://users.smartgb.com/g/g.php?a=s&i=g19-01970-f1#write">Guestbook</a>
+//
+<a href="https://www.youtube.com/@Magg0TZD3AD">Youtube</a>
+
 
 <h2 align="center"> 
 ${\textsf{\color{PaleVioletRed} ⭐️Namez⭐️ }}$ 
@@ -63,7 +76,7 @@ ${\textsf{\color{hotpink}Pup/Pups}}$
  <BR>
  ${\textsf{\color{Pink}Hy/Hymn}}$
 <BR>
- ${\textsf{\color{hotpink}H☆/H☆m/}}$
+ ${\textsf{\color{hotpink}H☆/H☆m}}$
 <BR>
  ${\textsf{\color{Pink}H3/H1m}}$
 
@@ -152,16 +165,23 @@ ${\textsf{\color{PaleVioletRed} ⭐️SpookyMonth⭐️ }}$
  ${\textsf{\color{Pink} Astro x Me }}$
 <BR>
 
+<h3 align="center"> 
+${\textsf{\color{PaleVioletRed} ⭐️Other Ships⭐️ }}$
 
-
-
-- ${\textsf{\color{Pink} Rodger x Glisten (dandys world)}}$
-- ${\textsf{\color{hotpink} Finn x Shrimpo (dandys world)}}$
-- ${\textsf{\color{Pink} Astro x Dandy (dandys world)}}$
-- ${\textsf{\color{hotpink} Glisten x Boxten (dandys world)}}$
-- ${\textsf{\color{hotpink} Astro x me (Dandys world)}}$
-
-
+</h3>
+ <p align="center" width="100%">
+ ${\textsf{\color{Pink} William Afton x Micheal Afton (Fnaf) }}$
+<BR>
+ ${\textsf{\color{hotpink} B.V. Afton x Micheal Afton (Fnaf) }}$
+<BR>
+ ${\textsf{\color{Pink} Garret x Steve (The Minecraft Movie) }}$
+<BR>
+ ${\textsf{\color{hotPink} Ponyboy x Johhny (The Outsiders }}$
+<BR>
+ ${\textsf{\color{Pink} Ponyboy x Sodapop (The Outsiders }}$
+<BR>
+ ${\textsf{\color{hotPink} Mel x Kalli (My personal book I'm writing) }}$
+<BR>
 
 <br>
 
@@ -178,22 +198,6 @@ ${\textsf{\color{ pink} I have a lot of ships... }}$
 ${\textsf{\color{PaleVioletRed} ⭐️ Other Shit ⭐️ }}$
 </h2>
 
-<a href="https://skullcruncher.straw.page">Strawpage</a>
-<br>
-<Br>
-<a href="www.tumblr.com/blog/skullcrunch3r">Tumblr</a>
-<Br>
-<BR>
-<a href="pin.it/32dCx60em">Xenogenders</a>
-<BR>
-<BR>
-<a href="https://pronouns.cc/@cozm1c_starz">Pronouns</a>
-<br>
-<BR>
-<a href="https://users.smartgb.com/g/g.php?a=s&i=g19-01970-f1#write">guestbook</a>
-<br>
-<BR>
-<a href="https://www.youtube.com/@Magg0TZD3AD">Youtube</a>
 
 ${\textsf{\color{hotpink}Do not DM me if you're a minor, if I find out I am talking to a minor I will block you }}$
 <br>
